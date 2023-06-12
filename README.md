@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **facundopol24@gmail.com**
 
-- 📄 Know about my experiences [I HAVE NO EXPERIENCE BUT I AM LOOKING FOR IT](I HAVE NO EXPERIENCE BUT I AM LOOKING FOR IT)
+- 📄 Know about my experiences I HAVE NO EXPERIENCE BUT I AM LOOKING FOR IT
 
 - ⚡ Fun fact **I am funny**
 
